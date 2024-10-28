@@ -1,0 +1,2 @@
+# Brytersoft Teleprompter Privacy Policy
+
